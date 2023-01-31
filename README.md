@@ -1,3 +1,3 @@
 Hey hi
 
-New Rewad me file
+New Rewd me file is updated now
